@@ -1,5 +1,6 @@
 # Todas as skins enviadas no #skins
-
+# [MystiaSkin zubs edit](https://www.dropbox.com/s/j2b2b5zb3ez7bne/MystiaSkin%20zubs%20edit.osk?dl=0)
+![](https://i.imgur.com/deF5Itb.png)
 # [Rakyero Mix Plus v1.0](https://drive.google.com/file/d/1oJiv1bEwan_SADiB_Hq8Rm8LAlmlnfhp/view?usp=sharing)
 ![](https://i.imgur.com/k427lnW.png)
 

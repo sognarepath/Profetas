@@ -1,7 +1,7 @@
 # Todas as skins enviadas no #skins
 
-# []()
-![]()
+# [-『Masno-Ni』- v1.1](https://drive.google.com/file/d/1QSJTFIGxHeV6rOjetKQuOPXAkvzsxob9/view?usp=sharing)
+![](https://i.imgur.com/ICfV9R6.png)
 
 # [Burakku Shipu](https://drive.google.com/file/d/1W7xZW3iZwTBsCCnN87WsKRG6nT3G7A-N/view?usp=sharing)
 ![](https://i.imgur.com/COnKtdw.png)

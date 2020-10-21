@@ -1,5 +1,14 @@
 # Todas as skins enviadas no #skins
 
+# []()
+![]()
+
+# [Burakku Shipu](https://drive.google.com/file/d/1W7xZW3iZwTBsCCnN87WsKRG6nT3G7A-N/view?usp=sharing)
+![](https://i.imgur.com/COnKtdw.png)
+
+# [Tokichii](https://drive.google.com/file/d/1xnJ1sTDVyHNMSaz7V0a63yAfp3yHYpcW/view?usp=sharing)
+![](https://i.imgur.com/NZZHRPb.png)
+
 # [Blue Night v2](https://drive.google.com/file/d/1oNuil03-UTH0V23DRhTi6DldtmUKb9wV/view?usp=sharing)
 ![](https://i.imgur.com/7maosIb.png)
 

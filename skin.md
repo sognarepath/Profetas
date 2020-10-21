@@ -1,5 +1,8 @@
 # Todas as skins enviadas no #skins
 
+# [- Marnie (- Dark - edit)](https://drive.google.com/file/d/1Ydi31au4zFnxbYXFSU4o-8fo-_sS6xRx/view?usp=sharing)
+![](https://i.imgur.com/nruWpQO.png)
+
 # [-『Masno-Ni』- v1.1](https://drive.google.com/file/d/1QSJTFIGxHeV6rOjetKQuOPXAkvzsxob9/view?usp=sharing)
 ![](https://i.imgur.com/ICfV9R6.png)
 

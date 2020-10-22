@@ -1,6 +1,11 @@
 # Todas as skins enviadas no #skins
+
+# [YUGEN Zubs](https://drive.google.com/file/d/1lb6tY2eQWFB_OwnGSc6_RZ_hVfkSjuc0/view?usp=sharing)
+![](https://i.imgur.com/97ciHKX.png)
+
 # [MystiaSkin zubs edit](https://www.dropbox.com/s/j2b2b5zb3ez7bne/MystiaSkin%20zubs%20edit.osk?dl=0)
 ![](https://i.imgur.com/deF5Itb.png)
+
 # [Rakyero Mix Plus v1.0](https://drive.google.com/file/d/1oJiv1bEwan_SADiB_Hq8Rm8LAlmlnfhp/view?usp=sharing)
 ![](https://i.imgur.com/k427lnW.png)
 

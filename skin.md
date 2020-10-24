@@ -1,5 +1,11 @@
 # Todas as skins enviadas no #skins
 
+# [! idk dude v6](https://www.dropbox.com/s/ga3hnkqsaoo6vl7/%21%20idk%20dude%20v6.osk?dl=0)
+![](https://i.imgur.com/jHEtXpB.png)
+
+# [[ Zane ]'s skin](https://www.dropbox.com/s/tfy3kgafor22k6k/%5B%20Zane%20%5D%27s%20skin.osk?dl=0)
+![](https://i.imgur.com/WN06WLZ.png)
+
 # [YUGEN Zubs](https://www.dropbox.com/s/vlhm69g4oe60sal/YUGEN%20zubs.osk?dl=0)
 ![](https://i.imgur.com/97ciHKX.png)
 

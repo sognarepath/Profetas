@@ -1,5 +1,8 @@
 # Todas as skins enviadas no #skins
 
+# [funorange but playable](https://www.dropbox.com/s/y5mxvfczfomi9oc/dracula.osk?dl=0)
+![](https://i.imgur.com/XRC4pbS.png)
+
 # [rizer milim edit](https://www.dropbox.com/s/e4n7lctn43eywu4/rizer_milim_edit.osk?dl=0)
 ![](https://i.imgur.com/xeuUlUd.png)
 

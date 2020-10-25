@@ -1,5 +1,8 @@
 # Todas as skins enviadas no #skins
 
+# [rizer milim edit](https://www.dropbox.com/s/e4n7lctn43eywu4/rizer_milim_edit.osk?dl=0)
+![](https://i.imgur.com/xeuUlUd.png)
+
 # [drink33s_Rusia_Uruha_skin](https://www.dropbox.com/s/5ky5jt87mjuaez5/drink33s_Rusia_Uruha_skin.osk?dl=0)
 ![](https://i.imgur.com/yjgJBgl.png)
 

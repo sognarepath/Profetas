@@ -1,5 +1,11 @@
 # Todas as skins enviadas no #skins
 
+# [drink33s_Rusia_Uruha_skin](https://www.dropbox.com/s/5ky5jt87mjuaez5/drink33s_Rusia_Uruha_skin.osk?dl=0)
+![](https://i.imgur.com/yjgJBgl.png)
+
+# [xkirito tentativa](https://www.dropbox.com/s/x3afmu3uglpihqw/xkirito%20tentativa.osk?dl=0)
+![](https://i.imgur.com/3w4WZ9D.png)
+
 # [! idk dude v6](https://www.dropbox.com/s/ga3hnkqsaoo6vl7/%21%20idk%20dude%20v6.osk?dl=0)
 ![](https://i.imgur.com/jHEtXpB.png)
 

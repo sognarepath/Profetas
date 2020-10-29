@@ -1,5 +1,17 @@
 # Todas as skins enviadas no #skins
 
+# [mistya_old](https://www.dropbox.com/s/n6mbtcakm2delu3/mistya_old.osk?dl=0)
+![](https://i.imgur.com/dzCXIR6.png)
+
+# [Pengu_Lian(PwV)](https://drive.google.com/u/0/uc?id=1JafSfTPSnMlOujRjm1oyZiP9XWMgMN0X&export=download)
+![](https://i.imgur.com/4osQGcy.png)
+
+# [Usada Pekora+WhiteCatOld](Usada Pekora+WhiteCatOld)
+![](https://i.imgur.com/6Abyu0H.png)
+
+# [tko_x_yasen_x_kyle_x_toke_x_a_puta_que_o_pariu](https://www.dropbox.com/s/gao4tad9ayonmte/tko_x_yasen_x_kyle_x_toke_x_a_puta_que_o_pariu.osk?dl=0)
+![](https://i.imgur.com/bx2UZLr.png)
+
 # [funorange but playable](https://www.dropbox.com/s/y5mxvfczfomi9oc/dracula.osk?dl=0)
 ![](https://i.imgur.com/XRC4pbS.png)
 

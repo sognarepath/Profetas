@@ -48,5 +48,5 @@
 # [Rafis_2018-03-26_HDDT](https://www.dropbox.com/s/gorhb5zrrdyxf65/-%20%23%20Rafis%20%5B1.0001%5D%20%28HDDT%29.osk?dl=0)
 ![](https://i.imgur.com/SEBxqFS.png)
 
-# [Emerald Rafis skin](https://www.dropbox.com/s/cx3dk02n2zhxo99/Burakku%20Shipu.osk?dl=0)
+# [Emerald Rafis skin](https://www.dropbox.com/s/sj3y6ujfafvtgh9/Emerald%20rafis%20skin.osk?dl=0)
 ![](https://i.imgur.com/QOeFGqf.png)

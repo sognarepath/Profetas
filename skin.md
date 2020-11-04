@@ -39,7 +39,7 @@
 # [Rakyero Mix Plus v1.0](https://www.dropbox.com/s/yne5z5behpa1m3w/Rakyero%20Mix%20Plus%20v1.0.osk?dl=0)
 ![](https://i.imgur.com/k427lnW.png)
 
-# [def+a+lot (hitcircle edit)](https://www.dropbox.com/s/cx3dk02n2zhxo99/Burakku%20Shipu.osk?dl=0)
+# [def+a+lot (hitcircle edit)](https://www.dropbox.com/s/s7evyejlqrtp87z/def%2Ba%2Blot%20%28hitcircle%20edit%29.osk?dl=0)
 ![](https://i.imgur.com/jWUUFXs.png)
 
 # [- Marnie (- Dark - edit)](https://www.dropbox.com/s/5nt9u15satyqs6t/-%20Marnie%20%28-%20Dark%20-%20edit%29.osk?dl=0)

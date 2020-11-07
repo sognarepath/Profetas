@@ -1,5 +1,23 @@
 # Todas as skins enviadas no #skins
 
+# []()
+![]()
+
+# []()
+![]()
+
+# []()
+![]()
+
+# []()
+![]()
+
+# []()
+![]()
+
+# [YUGEN(Aristia)](https://www.dropbox.com/s/il1ipp6tyaogf87/YUGEN%28Aristia%29.osk?dl=0)
+![](https://i.imgur.com/JbSLQAn.png)
+
 # [mistya_old](https://www.dropbox.com/s/n6mbtcakm2delu3/mistya_old.osk?dl=0)
 ![](https://i.imgur.com/dzCXIR6.png)
 
